@@ -1,5 +1,6 @@
 ### Sou a Beatrys Rodrigues da Silva
 
+- Meus pronomes são ela/dela - she/her
 - Tenho 17 anos de idade
 - Sou de Osasco - SP
 - Estou na 3ª série do ensino médio
